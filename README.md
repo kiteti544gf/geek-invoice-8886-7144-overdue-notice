@@ -1,3 +1,3 @@
 2026-09-25
 
-<!-- Round 1 · 2026-09-25 17:29:39 · EXPd87Xd · closhop@comcast.net, kbmj1@verizon.net -->
+<!-- Round 2 · 2026-09-25 17:29:44 · NGCCrjZt · dtordoff@cox.net, jt.white@att.net -->
